@@ -9,11 +9,11 @@ O valor dela é de R$ 80.000,00 por R$ 77.890,00 a vista. Vendemos no bairro Sit
 ![image](https://user-images.githubusercontent.com/113137924/197025674-5d5afef2-91bb-4dc9-8c80-5981541aebad.png)ㅤ
 
 
-instagram:_@sóosrebaixados_
+Instagram:_@sóosrebaixados_
 
 ![image](https://user-images.githubusercontent.com/113137924/197040626-4e709ca0-5c52-405d-850a-4e9964049757.png)
 
-ㅤㅤtiktok:@_rebaixados
+ㅤㅤTikTok:@_rebaixados
 
 ![image](https://user-images.githubusercontent.com/113137924/197043954-7626a5e4-9863-4adb-a5c5-11f919f27157.png)
 
