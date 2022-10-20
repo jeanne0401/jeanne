@@ -15,4 +15,5 @@ _@sóosrebaixados_
 
 ㅤㅤ@_rebaixados
 
-![image](https://user-images.githubusercontent.com/113137924/197043571-93eaf883-5f7d-4c46-a910-d01d4b886ebb.png)
+![image](https://user-images.githubusercontent.com/113137924/197043671-b6162d7f-3fb7-4f08-9dbe-005f15af2df7.png)
+
