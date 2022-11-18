@@ -16,11 +16,9 @@ Marca da Roda: Volcano wheels
 
 Modelo da Roda: Limited Eight Rex
 
-Marca do Pneu:
 
 Perfil do pneu:: 165/35/r18
 
-Demais acessórios:
 
 Tipo de rebaixamento: Suspensão a ar
 
