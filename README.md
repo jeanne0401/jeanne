@@ -7,13 +7,21 @@ venham aproveitar esse preço imperdível dessa saveiro surf 2022, que com o pag
 O valor dela é de R$ 80.000,00 por R$ 77.890,00 a vista. Vendemos no bairro Sitio Cercado n° 561 em Curitiba-PR.
 
 Ficha técnica do carro:
+
 Carro: VW Saveiro Cross
+
 Cor: Amarela
+
 Marca da Roda: Volcano wheels
+
 Modelo da Roda: Limited Eight Rex
+
 Marca do Pneu:
+
 Perfil do pneu:: 165/35/r18
+
 Demais acessórios:
+
 Tipo de rebaixamento: Suspensão a ar
 
 ![image](https://user-images.githubusercontent.com/113137924/202782886-2bcaaad2-676d-4e54-a96c-581f16570d9c.png)
