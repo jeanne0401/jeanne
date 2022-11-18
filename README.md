@@ -15,7 +15,8 @@ Perfil do pneu:: 165/35/r18
 Demais acessórios:
 Tipo de rebaixamento: Suspensão a ar
 
-Image
+![image](https://user-images.githubusercontent.com/113137924/202782886-2bcaaad2-676d-4e54-a96c-581f16570d9c.png)
+
 
 Image
 
