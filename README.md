@@ -28,7 +28,9 @@ Tipo de rebaixamento: Suspensão a ar
 ![image](https://user-images.githubusercontent.com/113137924/202783404-6cdfad86-85a4-47f0-9d7b-c26a7515948f.png)
 
 
-Image
+![image](https://user-images.githubusercontent.com/113137924/202783552-c8c7f09c-9edf-4acb-97af-d50bb4b9e9ba.png)
+
+
 ![image](https://user-images.githubusercontent.com/113137924/197025674-5d5afef2-91bb-4dc9-8c80-5981541aebad.png)ㅤ
 
 
